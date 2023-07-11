@@ -1,1 +1,0 @@
-# Galinhatron 2000
